@@ -1,2 +1,2 @@
 # alexa-assis..
-my own vertual wive 
+my own vertual wife 
